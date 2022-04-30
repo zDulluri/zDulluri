@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @zDulluri
-- 👀 I’m interested in chaning the world
+- 👋 Hi, I’m @Dr Dulluri
+- 👀 I’m interested in making the world a better place
 - 🌱 I’m currently learning the world & people behavior
 - 💞️ I’m looking to collaborate on problem solving
 - 📫 How to reach me dr.dulluri[at]gmail.com
